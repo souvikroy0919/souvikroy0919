@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @souvikroy0919
+- 👀 I’m interested in ...Computer Codes
+- 🌱 I’m currently learning ...Java
+- 💞️ I’m looking to collaborate on ..any programs
+- 📫 How to reach me ...souvikroy0919@gmail.com
+- 😄 Pronouns: ...He/Him
+- ⚡ Fun fact: ...Let's go skydiving
